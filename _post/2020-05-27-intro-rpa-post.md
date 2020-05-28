@@ -1,0 +1,2 @@
+Grand View Research, Inc. performed a study in October 2018, finding that the primary companies in the RPA market included Automation Anywhere, Inc.; Blue Prism Group PLC; UIPath Inc.; Be Informed B.V.; OpenSpan; and Jacada, Inc. According to research firm Everest Group, UIPath, Automation Anywhere, Blue Prism, NICE are the leaders in the industry . A recent report released in 2019 predicts the CAGR (compound annual growth rate) of robotic process automation market in I
+adfadfa
